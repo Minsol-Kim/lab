@@ -1,3 +1,4 @@
 이름 : 김민솔
-dksl dlrp antms akfdldi eheocp
-휴 이제 된다ㅋㅋ
+1번입니다
+2번입니다
+3번입니다
